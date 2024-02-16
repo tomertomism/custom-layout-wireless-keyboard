@@ -1,3 +1,5 @@
+this is a 93-key layout wireless keyboard with a volume knob
+
 [please DO NOT download this version until I delete this sentence, as unknow fatal error may occur]
 
 [please DO NOT download this version until I delete this sentence, as unknow fatal error may occur]
